@@ -58,6 +58,8 @@ parachute  n 降落伞， vt 降落
 
 hell----地犹
 yell 大声叫喊．
+observe 观察
+glance 
 
 
 
