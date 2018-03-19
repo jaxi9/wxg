@@ -38,6 +38,30 @@ chaotic adj 混乱的
 lay laid
 layer n 层     layout 设计，布局
 
+underlie; 在．．．．下方，构成．．．基础
+
+parallel 平行的，类似的．
+　　　　　　天空的，高的．
+paradise　天堂
+symmatry  对称
+parameter 决定因素，参数
+diameter  直径
+radio,无线电
+radiate ,半径，辐射
+radius , 镭
+parasite, 寄生物
+paralyze , 使麻痹；使瘫痪
+analyze , 分析　analyse 
+analysis , 
+analysical, 善于分析的．
+parachute  n 降落伞， vt 降落
+
+hell----地犹
+yell 大声叫喊．
+
+
+
+
 
 
 
