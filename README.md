@@ -60,6 +60,17 @@ hell----地犹
 yell 大声叫喊．
 observe 观察
 glance 
+peep;偷看，看往往是不及物动词．
+amid 处于中间状态
+interial exterial 
+minimize,VT 使变小．
+proficiency proficient adj
+major speciality 专业　n
+academy ;n 专业院校．研究会，学会
+academic adj; 学校的，专业的，
+　　　　　 n;  专业人员．
+
+
 
 
 
